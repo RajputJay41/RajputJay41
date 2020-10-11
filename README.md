@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **jayrajput647@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fDsWsKmLTcaR1Pj2KwL1Tv1K42c3YB6-/view?usp=sharing](https://drive.google.com/file/d/1fDsWsKmLTcaR1Pj2KwL1Tv1K42c3YB6-/view?usp=sharing)
+- 📄 Know about my experiences in my resume [https://drive.google.com/file/d/1fDsWsKmLTcaR1Pj2KwL1Tv1K42c3YB6-/view?usp=sharing](https://drive.google.com/file/d/1fDsWsKmLTcaR1Pj2KwL1Tv1K42c3YB6-/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am a Good Writer and a gamer too.**
 
