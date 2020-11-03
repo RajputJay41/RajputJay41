@@ -18,7 +18,7 @@
 
 - 📝 I regulary write articles on [https://github.com/RajputJay41/Feature-Engineering](https://github.com/RajputJay41/Feature-Engineering)
 
-- 💬 Ask me about **Android , java, c++, FinTech, Buisness.**
+- 💬 Ask me about **Android , java, c++, FinTech, Buisness, Scala, Julia.**
 
 - 📫 How to reach me **jayrajput647@gmail.com**
 
